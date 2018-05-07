@@ -1,2 +1,0 @@
-# kkeji.github.io
-kkeji
